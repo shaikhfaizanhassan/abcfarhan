@@ -1,1 +1,1 @@
-faizan ki lelo
+faizan ki leli
